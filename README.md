@@ -1,0 +1,2 @@
+# dengdos
+cd kontol
