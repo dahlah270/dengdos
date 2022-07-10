@@ -1,2 +1,0 @@
-# dengdos
-cd kontol
